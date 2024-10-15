@@ -5,7 +5,7 @@ Namaste 🙏, I'm Aman Agrahari 👨🏻‍💻
 
 Full Stack Developer💻|  Problem Solver📈
 # 💫 About Me:
-🚀 I’ve recently been working on a Twitter Clone project, diving deep into web development. <br><br>🌱 Currently, I'm on a journey of continuous learning, embracing every challenge, and growing with each step!<br><br>🍀 Check out all my links on [Linktree](https://linktr.ee/amanagrahari391).<br><br>💬 Feel free to ask me anything about development!<br><br>📄 Want to know about my professional experiences? Take a look at my [resume](https://drive.google.com/file/d/1BnWdNicofphHjC8ve_58_PXcHOx21_xb/view?usp=drive_link).<br><br>😄 Pronouns: He/Him<br><br>⚡ Fun fact: When I'm not immersed in coding, you’ll find me mastering the game of Chess. My strategic skills extend beyond the screen to the chessboard! ♟️💻 #TechAndChessMaster
+🚀 I’ve recently been working on a Old Mobile Selling site project, diving deep into web development. <br><br>🌱 Currently, I'm on a journey of continuous learning, embracing every challenge, and growing with each step!<br><br>🍀 Check out all my links on [Linktree](https://linktr.ee/amanagrahari391).<br><br>💬 Feel free to ask me anything about development!<br><br>📄 Want to know about my professional experiences? Take a look at my [resume](https://drive.google.com/file/d/1BnWdNicofphHjC8ve_58_PXcHOx21_xb/view?usp=drive_link).<br><br>😄 Pronouns: He/Him<br><br>⚡ Fun fact: When I'm not immersed in coding, you’ll find me mastering the game of Chess. My strategic skills extend beyond the screen to the chessboard! ♟️💻 #TechAndChessMaster
 
 
 ## 🌐 Socials:
